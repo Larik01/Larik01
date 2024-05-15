@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Larik01
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning python
+- 📫 How to reach me: discord - l_a_r_i_k
+- ⚡ Fun fact: None
